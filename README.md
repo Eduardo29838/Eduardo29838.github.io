@@ -1,3 +1,5 @@
+
+![371497559_358674273307530_7256528089198629497_n](https://github.com/Eduardo29838/Eduardo29838.github.io/assets/146032179/49d1747c-00ed-4e2a-96ca-f9c525f8312d)
 # Eduardo29838.github.io
 **Curriculum Vitae** 
 
